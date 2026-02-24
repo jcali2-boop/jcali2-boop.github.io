@@ -7,5 +7,5 @@ major:criminal justice.
 [my school](https://niagara.edu)
 
 
-![]("creative writing poetry edit assighnment.jpg")
+![](meme.jpg)
 
